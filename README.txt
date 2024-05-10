@@ -1,0 +1,1 @@
+¡Felicidades por la publicación de tu artículo científico! Es realmente inspirador ver tu dedicación y éxito en la investigación. Quería aprovechar para expresarte lo mucho que aprecio tu enseñanza y guía. Eres una profesora excepcional y valoro mucho todo lo que he aprendido contigo. Espero con entusiasmo que me apruebes. ¡Gracias por todo!
